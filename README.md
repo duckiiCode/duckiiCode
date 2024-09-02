@@ -6,7 +6,8 @@ As You know i am 15 Years Old And Born In Germany Offenbach am main
 
 # 💻 Launguages I Know
 
-** PYTHON, HTML, CSS, JAVASCRIPT, NODE.JS**
+![image](https://github.com/user-attachments/assets/922bb9b7-42f3-488c-b73f-4a111a959ade)
+
 
 # 🛑 My Visual Studio Code Lookup
 
