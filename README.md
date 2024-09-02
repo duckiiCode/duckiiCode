@@ -4,4 +4,7 @@ I am ItsDuckyDev An Developer On Discord!
 
 Launguaged I Know 
 
-https://w7.pngwing.com/pngs/201/90/png-transparent-logo-html-html5-thumbnail.png https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR3iHW9F8U24tel7OWvX4YKDzZH1n8Kt42Zsw&s https://i0.wp.com/junilearning.com/wp-content/uploads/2020/06/python-programming-language.webp?fit=1920%2C1920&ssl=1   https://upload.wikimedia.org/wikipedia/commons/thumb/9/99/Unofficial_JavaScript_logo_2.svg/800px-Unofficial_JavaScript_logo_2.svg.png
+![image](https://github.com/user-attachments/assets/1db969b1-bdb1-4179-b646-075c99593df8) ![image](https://github.com/user-attachments/assets/61204c4d-b930-4e98-8b04-8e45f01ae233) ![image](https://github.com/user-attachments/assets/211df117-d124-4ddb-a5cb-99f2ef463d59) ![image](https://github.com/user-attachments/assets/5b778509-1eeb-44c0-af33-97648ffbe2d1)
+
+
+
