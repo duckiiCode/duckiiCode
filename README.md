@@ -9,9 +9,7 @@ As You know i am 15 Years Old And Born In Germany Offenbach am main
 ![image](https://github.com/user-attachments/assets/b2c7f42e-8b99-49bc-a124-4eaad6ba6477)
 
 # 🎒 Languages Im Learning
-![image](https://github.com/user-attachments/assets/52837ee1-be6c-485a-9d5c-dfddf3ac3472)
-
-
+![image](https://github.com/user-attachments/assets/ef41fa96-4b89-483d-a29c-95d626102aa0)
 
 
 # 🔎 My Visual Studio Code Lookup
